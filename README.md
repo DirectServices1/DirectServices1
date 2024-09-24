@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DirectServices1
-- 👀 I’m interested in ... AI tech
+- 👀 I’m interested in ... AGI & (Artifical Super Intelligence) ASI
 - 🌱 I’m currently learning ... all things NVIDIA AI
 - 💞️ I’m looking to collaborate on ... high remuneration projects.
 - 📫 How to reach me ...hmu
